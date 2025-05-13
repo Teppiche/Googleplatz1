@@ -1,2 +1,3 @@
 # Google Platz 1
-Google Platz 1 – Ihr Weg an die Spitze! Mehr Infos: www.googleplatz1.de
+### Du willst mit deiner Webseite bei **[Google Platz 1](www.googleplatz1.de)** erreichen? 
+Google Platz 1 - Google wird deine Webseite lieben! mehr Infos: www.googleplatz1.de
